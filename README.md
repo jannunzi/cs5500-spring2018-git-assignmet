@@ -1,1 +1,5 @@
-This is my readme file
+Checkout my
+
+[YouTube channel](http://youtube.com/jannunzi)
+
+and SUBSCRIBE!
